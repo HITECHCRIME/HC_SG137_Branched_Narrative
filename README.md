@@ -7,7 +7,7 @@
 ## Project Data
 
 Inspired by Ghostmane - Crucible type of beat.
-
+FIND A BEAT
 
 **Title:** Branched Narrative / **Featuring:** MOTHNODE
 
@@ -32,6 +32,10 @@ so close to ending allmy mistakes
 closing my eyes, feelin' the fiiii-re
 in smoke is where rebooting takes place
 
+ain't i tryin' to be a preacha
+reach out to me again (bah)
+sorry can't give (ya)
+what's already taken (what you already taken)
 
 ```
 
