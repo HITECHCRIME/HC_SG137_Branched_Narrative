@@ -6,10 +6,10 @@
 
 ## Project Data
 
-Description.
+Inspired by Ghostmane - Crucible type of beat.
 
 
-**Title:**  / **Featuring:** 
+**Title:** Branched Narrative / **Featuring:**
 
 **Production:**  / **Lyrics:** 
 
