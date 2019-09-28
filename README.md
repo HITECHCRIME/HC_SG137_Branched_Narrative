@@ -37,7 +37,13 @@ reach out to me again (bah)
 sorry can't give (ya)
 what's already taken (what you already taken)
 
-
+esoteric creation
+from the bygones
+all I wanted from
+this was a place
+I'd call home
+but it's gone
+but it's gone
 
 ```
 
