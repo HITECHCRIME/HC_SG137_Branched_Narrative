@@ -7,7 +7,7 @@
 ## Project Data
 
 Inspired by Ghostmane - Crucible type of beat.
-FIND A BEAT
+FIND A BEAT! slow and thumpy, dual  tempo
 
 **Title:** Branched Narrative / **Featuring:** MOTHNODE
 
