@@ -19,7 +19,15 @@ Inspired by Ghostmane - Crucible type of beat.
 livin' in an era (where)
 our words are not the same
 no sense in settlin' for one path
-(that) branches out
+(that) branches out every step i take
+
+left right left right
+choices b'come undone
+feels like a fucking game
+
+spill ya guts like a riva MIA
+in action now we trust  (thoughts)
+
 
 ```
 
