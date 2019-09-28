@@ -16,7 +16,10 @@ Inspired by Ghostmane - Crucible type of beat.
 ## Lyrics
 
 ```
-
+livin' in an era (where)
+our words are not the same
+no sense in settlin' for one path
+(that) branches out
 
 ```
 
