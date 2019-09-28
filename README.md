@@ -9,9 +9,9 @@
 Inspired by Ghostmane - Crucible type of beat.
 
 
-**Title:** Branched Narrative / **Featuring:**
+**Title:** Branched Narrative / **Featuring:** MOTHNODE
 
-**Production:**  / **Lyrics:** 
+**Production:** X / **Lyrics:** MOTHNODE
 
 ## Lyrics
 
