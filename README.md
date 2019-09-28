@@ -27,6 +27,10 @@ feels like a fucking game
 
 spill ya guts like a riva MIA
 in action now we trust  (thoughts)
+so close to ending allmy mistakes
+
+closing my eyes, feelin' the fiiii-re
+in smoke is where rebooting takes place
 
 
 ```
