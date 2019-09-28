@@ -44,6 +44,12 @@ this was a place
 I'd call home
 but it's gone
 but it's gone
+drifting lone i can't
+preach if noone's (really) actually here
+inside out  pulled through a mirror
+reflecting deeds i've done
+if i want to get up
+i can't stay the same
 
 ```
 
