@@ -18,27 +18,33 @@ Perhaps this one - testing with a slow beat. https://www.youtube.com/watch?v=1Vt
 ## Lyrics
 
 ```
-livin' in an era (where)
-our words are not the same
+
+
+livin' in an era where)
+(our) words are not the same
 no sense in settlin' for one path
 (that) branches out every step i take
 
 left right left right
 choices b'come undone
+
 feels like a fucking game
+still  too late
 
 spill ya guts like a riva MIA
 in action now we trust  (thoughts)
-so close to ending allmy mistakes
+so close to ending all  my mistakes
 
 closing my eyes, feelin' the fiiii-re
 in smoke is where rebooting takes place
+call it home
 
 ain't i tryin' to be a preacha
 reach out to me again (bah)
 sorry can't give (ya)
 what's already taken (what you already taken)
-
+ey ya
+tsk tsk tsk
 esoteric creation
 from the bygones
 all I wanted from
@@ -48,10 +54,12 @@ but it's gone
 but it's gone
 drifting lone i can't
 preach if noone's (really) actually here
-inside out  pulled through a mirror
+inside out 
+pulled through a mirror
 reflecting deeds i've done
 if i want to get up
 i can't stay the same
+can't stay the same
 
 ```
 
