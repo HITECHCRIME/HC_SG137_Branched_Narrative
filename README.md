@@ -26,10 +26,10 @@ no sense in settlin' for one path
 (that) branches out every step i take
 
 left right left right
-choices b'come undone
+choices come undone
 
-feels like a fucking game
-still  too late
+feels it like a fucking game
+still too late
 
 spill ya guts like a riva MIA
 in action now we trust  (thoughts)
@@ -41,7 +41,7 @@ call it home
 
 ain't i tryin' to be a preacha
 reach out to me again (bah)
-sorry can't give (ya)
+sorry can't give ya 
 what's already taken (what you already taken)
 ey ya
 tsk tsk tsk
@@ -59,6 +59,7 @@ pulled through a mirror
 reflecting deeds i've done
 if i want to get up
 i can't stay the same
+can't stay the same
 can't stay the same
 
 ```
