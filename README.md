@@ -1,6 +1,4 @@
-![]()
-
-![Image of Yaktocat](https://octodex.github.com/images/yaktocat.png)
+![](mandala-branched-narrative.png)
 
 # MOTHNODE_ Branched Narrative
 
