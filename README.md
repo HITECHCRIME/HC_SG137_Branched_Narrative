@@ -20,7 +20,6 @@ Perhaps this one - testing with a slow beat. https://www.youtube.com/watch?v=1Vt
 ## Lyrics
 
 ```
-
 livin' in an era where
 words're not the same
 no sense in settlin' for one path
