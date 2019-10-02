@@ -1,4 +1,4 @@
-[cover] ![](57175019_319474918741616_8502199518755923887_n.jpg)
+[cover] ![](Screenshot 2019-10-02 at 13.05.20.png)
 
 # MOTHNODE_ Branched Narrative
 
