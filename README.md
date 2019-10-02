@@ -6,9 +6,6 @@
 
 ## Project Data
 
-Inspired by Ghostmane - Crucible type of beat.
-FIND A BEAT! slow and thumpy, dual  tempo
-
 Perhaps this one - testing with a slow beat. https://www.youtube.com/watch?v=1VtPRErsGv4
 
 [FREE] POUYA x BONES TYPE BEAT Before I Go Apollo Young
@@ -151,5 +148,8 @@ can't stay the same
 | 4 | *as i* **reach** to grab the |  **mic** i contem-  | **plate** what i | **might** say |
 
 ## Notes
+
+Inspired by Ghostmane - Crucible type of beat.
+FIND A BEAT! slow and thumpy, dual  tempo
 
 ## Music Video
