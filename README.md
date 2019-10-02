@@ -23,9 +23,9 @@ no sense in settlin' for one path branches out
 every step i take
 
 left right left right choices come undone
-feels it like a fucking game still too late
+feels it like a fucking game still too late (noone's to blame)
 
-spill ya guts like a river MIA in action
+spill ya guts like a river MIA in action (missing in action)
 now we trust so close (thoughts/and thus) to ending all my mistakes
 closing my eyes, feelin' the fire in smoke
 this where rebooting takes place
