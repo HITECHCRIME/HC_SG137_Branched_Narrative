@@ -20,6 +20,48 @@ Perhaps this one - testing with a slow beat. https://www.youtube.com/watch?v=1Vt
 ## Lyrics
 
 ```
+livin' in an era where
+words're not the same
+no sense in settlin' for one path
+branches out every step i take
+
+left right left right
+choices come undone
+feels like a fucking game
+still too late
+
+to spill ya guts like a river MIA
+in action now we trust, so close
+to ending all my mistakes
+
+closing my eyes, feelin' the fire
+in smoke - this where rebooting takes place
+call it home
+
+i ain't tryin' to be a preacha
+reach out to me again
+sorry can't give
+- what's already taken
+
+esoteric creation
+from the bygones
+all I wanted from
+this was a place
+I'd call home
+
+but it's gone but it's gone
+drifting lone i can't
+preach if noone's actually here
+inside out pulled through a mirror
+reflecting deeds i've done
+
+if i want to get up
+i can't stay the same
+can't stay the same
+can't stay the same
+
+----
+
 livin' in an era where words're not the same
 no sense in settlin' for one path branches out
 every step i take
