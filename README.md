@@ -23,7 +23,7 @@ no sense in settlin' for one path branches out
 every step i take
 
 left right left right choices come undone
-feels it like a fucking game still too late (noone's to blame)
+feels it like a fucking game still too late (scream: noone's to blame)
 to
 spill ya guts like a river MIA in action (missing in action)
 now we trust so close (thoughts/and thus) to ending all my mistakes
