@@ -90,7 +90,6 @@ reflecting deeds i've done
 if i want to get up i can't stay the same
 can't stay the same can't stay the same
 
-
 ---
 older
 
