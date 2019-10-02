@@ -1,4 +1,6 @@
-[cover] ![](/Screenshot 2019-10-02 at 13.05.20.png)
+![]()
+
+![Image of Yaktocat](https://octodex.github.com/images/yaktocat.png)
 
 # MOTHNODE_ Branched Narrative
 
