@@ -18,23 +18,22 @@ Perhaps this one - testing with a slow beat. https://www.youtube.com/watch?v=1Vt
 ## Lyrics
 
 ```
-livin' in an era where words are not the same
+livin' in an era where words're not the same
 no sense in settlin' for one path branches out
 every step i take
 
 left right left right choices come undone
 feels it like a fucking game still too late
 
-spill ya guts like a river MIA
-in action now we trust (thoughts/and thus)
-so close to ending all my mistakes
-
-closing my eyes, feelin' the fiiii-re
-in smoke is where rebooting takes place
+spill ya guts like a river MIA in action
+now we trust so close (thoughts/and thus) to ending all my mistakes
+closing my eyes, feelin' the fire in smoke
+this where rebooting takes place
 call it home
 
 ain't i tryin' to be a preacha reach out to me again
-sorry can't give what's already taken -
+sorry can't give - what's already taken
+
 esoteric creation from the bygones
 all I wanted from this was a place
 I'd call home but it's gone but it's gone
