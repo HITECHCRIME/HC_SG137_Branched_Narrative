@@ -1,4 +1,4 @@
-[cover] ![](Screenshot 2019-10-02 at 13.05.20.png)
+[cover] ![](/Screenshot 2019-10-02 at 13.05.20.png)
 
 # MOTHNODE_ Branched Narrative
 
